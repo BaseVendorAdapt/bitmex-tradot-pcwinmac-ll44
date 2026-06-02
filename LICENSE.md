@@ -1,4 +1,4 @@
-# 
+# Gratuito bitmex trading bot extensiones para Mac OS | Avanzado bitmex trading bot extensiones para PC Windows. Con fuentes en tiempo real y detección de liquidación — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
